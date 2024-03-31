@@ -1,0 +1,1 @@
+# Grids-for-7-7-7-shaped-hole
